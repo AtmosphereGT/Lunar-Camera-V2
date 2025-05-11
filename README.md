@@ -8,5 +8,5 @@ You Can Not Record With This Camera Mod It Is Basicly a Grabable Mirror But It I
 
 Developed And Modeled By Me (AtmosphereGT)
 
-Join My Discord: https://discord.gg/YVZ5fSm7Wg
-Get My Gorilla Tag Fan Game: https://atmosheregt.itch.io/lunarmonkes
+Join The Banana Runnners Discord: https://discord.gg/jUpcZRpPXj
+
